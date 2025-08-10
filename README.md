@@ -1,7 +1,0 @@
-# now
-
-bunda
-
-cu
-
-buceta
